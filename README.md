@@ -7,4 +7,5 @@
 - [tik tok](www.tiktok.com/@rummy.li)
 
 ### ✍️ Contact me:
-- [LinkedIn](https://www.linkedin.com/in/lisa-ignatovich-)
+- ![LinkedIn](https://www.linkedin.com/in/lisa-ignatovich-) 
+![Telegram](https://t.me/rummy28)
