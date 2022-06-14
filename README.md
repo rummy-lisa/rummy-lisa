@@ -8,4 +8,4 @@
 
 ### ✍️ Contact me:
 - [LinkedIn](https://www.linkedin.com/in/lisa-ignatovich-) 
-- [Telegram](https://t.me/rummy28)
+- [Telegram](https://t.me/rummy_28)
